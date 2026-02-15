@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 How to contact me rivinduamarasinghe1234@gmail.com <br>💬 Ask me about Web Development , Java
+👨‍💻 How to contact me rivinduamarasinghe1234@gmail.com 
 
 
 ## 🌐 Socials:
